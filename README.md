@@ -1,2 +1,3 @@
 # Quikejopa
-ebl\al\\\
+ebala
+Andrey i belka
